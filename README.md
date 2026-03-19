@@ -1,2 +1,0 @@
-# Proyect-Inces
-Proyect Pasantias
